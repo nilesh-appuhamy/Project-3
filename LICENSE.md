@@ -1,0 +1,1 @@
+Copyright & Copy; 2025 CAMe. All Right Reserved.
